@@ -1,4 +1,4 @@
-# 
+# Ultimate binance futures bot add-ons for Mac OS | Elite binance futures bot add-ons for PC Windows. Featuring momentum analysis and decentralized exchange api — optimized for maximum performance.
 
 
 
